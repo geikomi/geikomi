@@ -557,7 +557,7 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 <details>
 <summary>fanarts + offical </summary>
 
-<img src="https://github.com/geikomi/geikomi/blob/9057ff64fc92eff6dd1c89ee571fc1f59375c7e5/IMG_5329.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/9057ff64fc92eff6dd1c89ee571fc1f59375c7e5/IMG_6547.jpeg" width="30%"> 
+<img src="https://github.com/geikomi/geikomi/blob/9057ff64fc92eff6dd1c89ee571fc1f59375c7e5/IMG_5329.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/9057ff64fc92eff6dd1c89ee571fc1f59375c7e5/IMG_6547.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/44e2d325e43ddb84dffc4e233fa3539ad2925b2d/IMG_5381.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/7d29ce4d826f1b2537ca52329fa24cbc1a4adc35/IMG_5855.jpeg" width="30%"> 
 
 
 
@@ -566,15 +566,6 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
 
 ______________
-
-
-
-<img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/44e2d325e43ddb84dffc4e233fa3539ad2925b2d/IMG_5381.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/7d29ce4d826f1b2537ca52329fa24cbc1a4adc35/IMG_5855.jpeg" width="30%"> 
-
-
-
-
-
 
 <img src="https://github.com/pilot-z/pilot-z/blob/122b2e1519a03feef29516d50f4d426d37095907/34572EB2-4C06-4867-BCD1-48FCDED4DD6F.gif" width="90%">
 
