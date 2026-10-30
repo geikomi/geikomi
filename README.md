@@ -30,7 +30,7 @@ ____________
 ⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b66c4c3ddb1c8b6b068e0fa53486fb20c803857d/Untitled397_20261023161714.png" width="110%">⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
-<img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/613051128a646de26c8e364389632595d987b7c2/IMG_5332.jpeg" width="30%">
+<img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/333706f518c514d0c43039772ca28f159c562478/IMG_6616.jpeg" width="30%">
 
 $${\color{#008000}  : 𐔌 .. ⋮ .ᐟ \ POWER \ OF \ FRIENDSHIP \ ! \ . 𖥻.ᐟ ׁ ׅ𐂯ᩙ }$$
 $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \ KYLE \ ! !  }$$
@@ -570,7 +570,7 @@ ______________
 
 
 
-<img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/44e2d325e43ddb84dffc4e233fa3539ad2925b2d/IMG_5381.jpeg" width="30%">
+<img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/44e2d325e43ddb84dffc4e233fa3539ad2925b2d/IMG_5381.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/7d29ce4d826f1b2537ca52329fa24cbc1a4adc35/IMG_5855.jpeg" width="30%"> 
 
 
 
