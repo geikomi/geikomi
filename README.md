@@ -145,12 +145,23 @@ fictotypes ;
 
 ★ Stan marsh IRL/ID — doubles? depends
 
+☆ eobard thawne ID — doubles? DNI
+
+★ Tolkien Black medium — doubles? INT
+
+☆ Clyde donovan medium — doubles? INT
+
 ☆  Doom slayer . ID - doubles? DNI
   
 ★ Michael de santa . Fullkin/ID — doubles? IWEC.
   
 ☆  Hal Jordan . IRL - doubles? DNI
  
+☆ Kyle broflovski fullfic — doubles? unsure.
+
+★ eric cartman medium — doubles? INT
+
+★ dr. john watson medium — doubles? INT
 
 ☆  Two face . Fullfic/ID - doubles? DNI
   
