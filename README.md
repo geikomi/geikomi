@@ -131,8 +131,11 @@ __________
  <details>
 <summary>MAIN KINTYPES</summary>
 
- I'm aware I don't own the characters🫡
+Please understand that this isn't a roleplay, and I'm not just “related” to them. Identifying as them is how I cope and survive. It really sucks how much the alterhuman community is being watered down lately. Also, did you know that Eobard[CW version] was actually my very first kintype all the way back around 2015? 
 
+I'm completely aware I don't own the character though!!🫡
+
+__________
 
 fictotypes ;
 
