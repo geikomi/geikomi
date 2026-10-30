@@ -71,7 +71,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀self taught artist 
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
- [art gallery](strawpage6767677)
+ [art gallery](https://ang3lcakeart.straw.page)
 ⠀⠀
 <details> 
 
