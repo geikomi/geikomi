@@ -245,13 +245,13 @@ Other alterhumans;
 ★ fantasy/mythical creatures lover. Knights are so cool
 
 
-★  drawing, painting, craft, etc.
+★  drawing, comic books, painting, craft, etc.
 
 ★ favorite color ; green, red, yellow, orange, 00b4ac, and purple!
 
 ★ flims/series; The flash CW, green arrow CW, Child’s play,ghostbusters , RoboCop, Real steel, Teen wolf, Friday the 13th, Umbrella Academy, IT, good omens, Halloween , Screams, and more.
 
-★ animated; Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
+★ animated; Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, My Adventures with Superman, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
 ★ all animals & plants! I love watching nature videos & wildlife.
 
