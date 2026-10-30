@@ -263,7 +263,7 @@ Other alterhumans;
 
 ★ favorite color ; green, red, yellow, orange, 00b4ac, and purple!
 
-★ flims/series; The flash CW, green arrow CW, Child’s play,ghostbusters , RoboCop, Real steel, Teen wolf, Friday the 13th, Umbrella Academy, IT, good omens, Halloween , Screams, and more.
+★ flims/series; The flash CW, green arrow CW, Child’s play,ghostbusters , South park , RoboCop, Real steel, Teen wolf, Friday the 13th, Umbrella Academy, IT, good omens, Halloween , Screams, and more.
 
 ★ animated; Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, My Adventures with Superman, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
@@ -413,11 +413,12 @@ I have also noticed that most call-out culture can't handle serious topics anywa
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect anyone to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike!
+Again, this is my own issue, and I have no intention of stopping my friends from enjoying what they like.
 
 ____
 
-☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Craig fans, Jason Todd/Batfam fans unless friends.
+☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, Jason Todd/Batfam fans unless friends.
 
 ☆ Creek, Jayroy, & Damijon shippers
 
