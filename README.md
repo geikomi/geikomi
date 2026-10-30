@@ -455,7 +455,9 @@ ____________
 
 
  
-☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
+☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs. 
+
+I rarely block doubles
 
    
 </details>
