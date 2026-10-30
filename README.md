@@ -360,6 +360,7 @@ ______________
 
 ☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. 
 
+
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
 ☆ ship discourse. I'm so tired of ship discourse. Even the conversations between antis and pro/darkshippers are annoying. I've heard the same arguments over 20 times now, and I just don't want to see it anymore.
@@ -405,6 +406,9 @@ ____
 ☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
 ☆ Creek, Jayroy, & Damijon shippers
+
+
+☆ Facty and fact attack adventures fans unless we’re friends
 
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
 
