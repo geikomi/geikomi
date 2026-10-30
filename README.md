@@ -555,10 +555,9 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
 
 <details>
-<summary>2 </summary>
+<summary>fanarts + offical </summary>
 
-
-★ 
+<img src="https://github.com/geikomi/geikomi/blob/9057ff64fc92eff6dd1c89ee571fc1f59375c7e5/IMG_5329.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/9057ff64fc92eff6dd1c89ee571fc1f59375c7e5/IMG_6547.jpeg" width="30%"> 
 
 
 
