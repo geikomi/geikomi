@@ -149,7 +149,7 @@ fictotypes ;
 
 ★ Tolkien Black medium — doubles? INT
 
-☆ Clyde donovan medium — doubles? INT
+★ Clyde donovan medium — doubles? INT
 
 ☆  Doom slayer . ID - doubles? DNI
   
