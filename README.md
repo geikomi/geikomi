@@ -157,7 +157,7 @@ fictotypes ;
   
 ☆  Hal Jordan . IRL - doubles? DNI
  
-☆ Kyle broflovski fullfic — doubles? unsure.
+☆ Kyle broflovski fullfic — doubles? Unsure
 
 ★ eric cartman medium — doubles? INT
 
