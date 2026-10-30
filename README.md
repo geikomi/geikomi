@@ -403,12 +403,10 @@ My boundaries may seem ridiculous to some, but they mostly come from bad past ex
 
 ____
 
-☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
+☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Craig fans, Jason Todd/Batfam fans unless friends.
 
 ☆ Creek, Jayroy, & Damijon shippers
 
-
-☆ Facty and fact attack adventures fans unless we’re friends
 
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
 
