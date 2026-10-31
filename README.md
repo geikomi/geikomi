@@ -141,35 +141,35 @@ fictotypes ;
 
   I really don talk about kintypes much so here are the list.
 
-☆  Booster gold . HIGH - doubles? DNI
+☆  Booster gold . HIGH - kintwins? DNI
 
-★ Stan marsh IRL/ID — doubles? depends
+★ Stan marsh IRL/ID — kintwins? ask
 
-☆ eobard thawne ID — doubles? DNI
+☆ eobard thawne ID — kintwins? DNI
 
-★ Tolkien Black medium — doubles? INT
+★ Tolkien Black medium — kintwins? INT
 
-★ Clyde donovan medium — doubles? INT
+★ Clyde donovan medium — kintwins? INT
 
-☆  Doom slayer . ID - doubles? DNI
+☆  Doom slayer . ID - kintwins? DNI
   
-★ Michael de santa . Fullkin/ID — doubles? IWEC.
+★ Michael de santa . Fullkin/ID — kintwins? ask
   
-☆  Hal Jordan . IRL - doubles? DNI
+☆  Hal Jordan . IRL - kintwins? DNI
  
-☆ Kyle broflovski fullfic — doubles? Unsure
+☆ Kyle broflovski fullfic — kintwins? Unsure
 
-★ eric cartman medium — doubles? INT
+★ eric cartman medium — kintwins? INT
 
-★ dr. john watson medium — doubles? INT
+★ dr. john watson medium — kintwins? IDC INT
 
-☆  Two face . Fullfic/ID - doubles? DNI
+☆  Two face . Fullfic/ID - kintwins? DNI
   
-★ Music meister . HIGH - doubles? IWEC
+★ Music meister . HIGH - kintwins? ask
 
-★ Angel xmen . Fullfic - doubles? IWEC
+★ Angel xmen . Fullfic - kintwins? ask!
 
-★ Jetfire/Skyfire . ID - doubles? IWEC
+★ Jetfire/Skyfire . ID - kintwins? ask!
 
 
 Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
