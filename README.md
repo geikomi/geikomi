@@ -12,7 +12,7 @@ ____________
 
 ꗞ⠀—  I only stick around with ppl Im close to. shrugs. remaking intro soon! test.
 
-⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me!!
+⠀⠀ ⠀⠀⠀I’m fine with C*H, INT, or whisper me!!
 
 
 
@@ -466,6 +466,7 @@ I rarely block doubles
 ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 I do believe ppl should be themselves 
 
+2 . Please feel free to set boundaries with me. I never want to make anyone uncomfortable or give them a hard time. That's why I mostly use IWEC/IWC, but everyone is still more than welcome to interact.
 ________________
 
 
