@@ -147,6 +147,8 @@ fictotypes ;
 
 ★ Bean HIGH — kintwins? INT
 
+★ Luci medium — kintwins? INT
+
 ☆ eobard thawne ID — kintwins? DNI
 
 ★ Tolkien Black medium — kintwins? INT
