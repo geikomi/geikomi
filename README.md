@@ -424,7 +424,8 @@ ____
 
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
 
-☆ yumeshipper of my highest kintypes unless we friends
+☆ yumeshippers IWEC unless friends
+
 
 
 </details>
