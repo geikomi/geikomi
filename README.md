@@ -391,7 +391,7 @@ ______________
 I have also noticed that most call-out culture can't handle serious topics anyway. I stay away from drama as much as possible and rarely get involved. I always prefer to look at both sides of an issue to form my own opinion before making up my mind. That's all.
 
 
-☆ I dislike the terms "yaoi" and "fujoshi." If you want to label that way, go for it, b it’s not really my thing.
+☆ I dislike the terms "yaoi" and "fujoshi." If you want to label yourself that way, go for it! It's your choice, but it’s just not my thing. 
 
 
 ☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
