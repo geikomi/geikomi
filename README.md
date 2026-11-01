@@ -424,8 +424,6 @@ ____
 
 ☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, Jason Todd/Batfam fans unless friends.
 
-☆ those South Park fans who constantly tell people not to ship the children characters?
-There is nothing wrong with personally disliking shipping or choosing not to ship the kids together. Its your own opinion. But trying to control what other people do is completely hypocritical, especially when you're a fan of South Park.
 
 ☆ Creek, Jayroy, & Damijon shippers
 
