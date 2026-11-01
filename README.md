@@ -428,7 +428,8 @@ ____
 
 ☆ Creek, Jayroy, & Damijon shippers
 
-☆ Style shippers (IWC unless we're friends. I really do enjoy the ship, I just can't stand the fans.)
+☆ Style shippers ? IWEC unless we’re friends. Nothing wrong with that. I genuinely enjoy the ship itself. However, I mostly avoid interacting with these types of shippers. Especially other mainstream yaoi/fandom spaces who treat gay relationships like carbon copies of straight tropes. 
+It makes me uncomfortable for some odd reasons, so I prefer to keep my distance from those spaces and interactions.
 
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
 
