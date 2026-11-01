@@ -42,7 +42,7 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 
  $${\color{#A888B5} JIM \ AS \ KENNY, \ KIRK \ AS \ CARTMAN.(sorry) \ ! !  }$$
 
-I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
+I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
 <img src="https://github.com/pilot-z/pilot-z/blob/1cf86bbb6f9841ba99fc3f8465e7ded5b95ee961/Untitled396_20261023161151.png" width="110%">
 
