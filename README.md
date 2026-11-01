@@ -451,10 +451,7 @@ ____________
 ☆ Those who break their own boundaries. "Dni"
 
 
-☆ @shw1enholmes. He stinks… dni dni dni jk I love you
-
-
-☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
+☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses😭 
 
 ☆ Ppl who has same name as my former friends. I feel petty sorry😞
 
