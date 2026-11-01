@@ -427,7 +427,8 @@ ____
 ☆ Creek, Jayroy, & Damijon shippers
 
 ☆ Style shippers ? IWEC unless we’re friends. Nothing wrong with that. I genuinely enjoy the ship itself.
-So hopefully I don't come off the wrong way. ;-; I mostly avoid interacting with these types of shippers. Especially other mainstream yaoi/fandom spaces who treat gay relationships like carbon copies of stereotypes straight tropes. 
+I will try to explain my reasoning
+so hopefully I don't come off the wrong way. ;-; I mostly avoid interacting with these types of shippers. Especially other mainstream yaoi/fandom spaces who treat gay relationships like carbon copies of stereotypes straight tropes. 
 It makes me uncomfortable for some odd reasons, so I prefer to keep my distance from those spaces and interactions. 
 I really don't mind if other people enjoy that! It is their preference! 
 For me, I even enjoy fem/masc dynamics sometimes, but the heavy stereotyping in mainstream spaces just isn't my thing.
