@@ -164,7 +164,6 @@ fictotypes ;
  
 ☆ Kyle broflovski fullfic — kintwins? Unsure
 
-★ eric cartman medium — kintwins? INT
 
 ★ dr. john watson medium — kintwins? IDC INT
 
