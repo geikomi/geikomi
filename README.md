@@ -72,10 +72,11 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀self taught artist 
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
  [art gallery](https://ang3lcakeart.straw.page)
+
+
 ⠀⠀
 <details> 
-
-⠀⠀⠀ ⠀ <summary> 𐂯 </summary>
+ <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
   𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
