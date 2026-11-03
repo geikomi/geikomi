@@ -449,8 +449,8 @@ ____________
   
 ☆ Those who break their own boundaries. "Dni"
 
-☆ visually ignorant ppl who do not know anything about Alterhumans but still choose to spread misinformation. I do not care if you dislike the community, but I expect you to respect our space and keep it to yourself. 
-If you are just here to repeat random rumors, or if you got fake information from a viral TikTok or Discord post by someone who is new to the community, or someone who simply hates our guts (even if it's a system who does not understand alterhumans). if you think targeting us, joking about harming alterhumans, or harassing queer or "cringe" people who do not fit your perfect standards is funny. I’ll just ignore you
+☆ visually ignorant ppl who do not know anything about Alterhumans, xenogenders or any but still choose to spread misinformation. I do not care if you dislike or understand the community, but I expect you to respect our space and keep it to yourself. 
+
 
 ☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses😭 
 
