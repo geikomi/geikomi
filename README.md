@@ -146,6 +146,8 @@ fictotypes ;
 
 ★ Stan marsh IRL/ID — kintwins? ask
 
+★ Curious Cat ID — kintwins? sure!
+
 ★ Bean HIGH — kintwins? INT
 
 ☆ Od-dog fullfic — kintwins? DNI
