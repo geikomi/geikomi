@@ -148,9 +148,19 @@ fictotypes ;
 
 ★ Bean HIGH — kintwins? INT
 
+☆ Od-dog fullfic — kintwins? DNI
+
+★ Funky Monkey medium — kintwins? INT
+
+★ Dogday medium — kintwins? INT
+
+★ Catnap HIGH — kintwins? ask
+
 ★ Luci medium — kintwins? INT
 
 ☆ eobard thawne ID — kintwins? DNI
+
+★ Dyle ID — kintwins? DNIUF
 
 ★ Tolkien Black medium — kintwins? INT
 
@@ -312,6 +322,7 @@ REST ;
 
 ★ planet of the apes
 
+★ backwards house
 
 ★ Ninjago
 
