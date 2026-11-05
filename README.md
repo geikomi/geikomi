@@ -406,7 +406,7 @@ I have also noticed that most call-out culture can't handle serious topics anywa
 ☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
 
  
-☆ People who have problems with friends, unless they have done something uncomfortable/upset someone.
+☆ People who have problems with friends, unless they have done something uncomfortable/upset someone. Do not drag me down into my friends petty situations that have nothing to do with me out of the blue. I'm not responsible for my friends actions or anyone else. If they ever do something seriously harmful, let me know.
 
 
 </details>
