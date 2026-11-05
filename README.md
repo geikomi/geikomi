@@ -61,6 +61,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
  
  ⠀ 𐂂⠀- other names I love; Aster, Azrael, Thorne, or Ghoul!
 
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀adult[18-20]
     
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
