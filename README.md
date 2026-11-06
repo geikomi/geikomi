@@ -10,10 +10,15 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ____________
 
 
+ꗞ⠀—- ACTUAL DNI list ; DNI if your name is Erik or Mou, or if you’re part of the Jollibee group. Literally so problematic! They infected people with joker cooties and now everyone has to go to the jokespital!
+
+
 ꗞ⠀—  I only stick around with ppl Im close to. shrugs. remaking intro soon! test.
 
+
+
 ⠀⠀ ⠀⠀⠀I’m fine with C*H, INT, or whisper me!!
- ACTUAL DNI list ; DNI if your name is Erik or Mou, or if you’re part of the Jollibee group. Literally so problematic! They infected people with joker cooties and now everyone has to go to the jokespital!
+ 
 
 
 ⠀⠀⠀ ⠀⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ click this ](https://www.tiktok.com/t/ZTftaXD3M/)
