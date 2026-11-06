@@ -293,7 +293,7 @@ Other alterhumans;
 
 ★ flims/series; The flash CW, green arrow CW, Child’s play,ghostbusters , RoboCop, Real steel, Teen wolf, Stranger things, Friday the 13th, Umbrella Academy, good omens, Halloween , Screams, and more.
 
-★ animated; Monster house , Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, aqua teen hunger force and more.
+★ animated; Peanuts , Monster high , Monster house , Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
 ★ all animals & plants! I love watching nature videos & wildlife.
 
