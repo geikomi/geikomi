@@ -278,7 +278,13 @@ Other alterhumans;
 
 ★ I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
 
+★ I am an animal and an aquatic lover! I like tigers, lions, snakes, sea bunnies, blobfish, sharks, and other!
+
 ★ fantasy/mythical creatures lover. Knights are so cool
+
+★ I enjoy giving fanart , ponied and some stuff to friends! If I wasn’t much of a lazy person.
+
+★ My fav characters are Hal Jordan, Stan Marsh , Alan scott , Rarity , Ghostmake , Barry allen , Luci from disenchantment , riddler , Wally West , Johnny Storm, Booster Gold , and much more!
 
 
 ★  drawing, comic books, painting, craft, etc.
