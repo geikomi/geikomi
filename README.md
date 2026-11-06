@@ -441,7 +441,7 @@ Anyway, here’s my list bec I’m insufferable and I really hate fun.
 
 ____
 
-☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, Jason Todd/Batfam fans unless friends.
+☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam] unless friends.
 
 
 ☆ Creek, Jayroy, & Damijon shippers
