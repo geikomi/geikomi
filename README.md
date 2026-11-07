@@ -13,7 +13,7 @@ ____________
 𐂂⠀—- ACTUAL DNI list ; DNI if your name is Erik , Mou , or Kirk or if you’re part of the Jollibee group. Literally so problematic! They infected people with joker cooties and now everyone has to go to the jokespital!
 
 
-ꗞ⠀—  I only stick around with ppl Im close to. shrugs. remaking intro soon! test.
+ꗞ⠀—  I only stick around with ppl Im close to. shrugs. remaking intro soon! test. I’m also pretty picky about making new friends.
 
 
 
