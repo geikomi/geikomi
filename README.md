@@ -107,16 +107,13 @@ Yk how some people believe they had past lives,or that their soul belongs to som
 
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
 
-
-⠀⠀ ⠀⠀ ⠀ ⠀⠀ <details> 
+ <details> 
 ⠀⠀⠀ ⠀ <summary> REMINDER </summary>
 
 ⠀⠀⠀⠀ ⠀ ⠀-- I don't comment on ata except with ⠀⠀ ⠀⠀some close friends. I mostly use VPN for safety lol. And if someone impersonating me made a comment on ata that isn't my friend, that is NOT me. Same with ppl copying my skins. I'm not worried of ppl copying me or their style are very familar as mine since i dont own them. I just worry about them using it in weird ways.
 
 I’m not going to unblock anyone. Please stop bothering my friends. My friends and I don’t owe you any explanation.
-
-
-⠀⠀⠀⠀ ⠀ ⠀ </details>
+ </details>
 
 ⠀ ⠀⠀𐂂 -- ⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="50%">
