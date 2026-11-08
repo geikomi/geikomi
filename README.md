@@ -584,7 +584,7 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 <details>
 <summary>★ lovemails </summary>
 
- ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jimmyiktT), [@kirk](https://github.com/ccoketaro), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@frances](https://github.com/d3thmagnet1c), [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt! I'm lazy to list others
+ ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jellybunni), [@kirk](https://github.com/ccoketaro), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@frances](https://github.com/d3thmagnet1c), [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt! I'm lazy to list others
 
 
 </details>
