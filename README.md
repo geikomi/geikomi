@@ -30,11 +30,7 @@ ____________
  ⠀⠀ ⠀ ⠀⠀⠀ 𐂂⠀-- <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ABOUT ME](https://idkmaybeintro.straw.page)
 
  <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
-
-
-
-
-⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b66c4c3ddb1c8b6b068e0fa53486fb20c803857d/Untitled397_20261023161714.png" width="110%">⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
+⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
 <img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/333706f518c514d0c43039772ca28f159c562478/IMG_6616.jpeg" width="30%">
@@ -51,7 +47,7 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 
 I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
-<img src="https://github.com/pilot-z/pilot-z/blob/1cf86bbb6f9841ba99fc3f8465e7ded5b95ee961/Untitled396_20261023161151.png" width="110%">
+ ⠀ ⠀ <img src="https://github.com/geikomi/geikomi/blob/4c57d0cdff65b0a3b035aff9cf8f738a0468dc78/IMG_7915.gif" width="110%">
 
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
@@ -112,8 +108,6 @@ Yk how some people believe they had past lives,or that their soul belongs to som
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
 
 
-
-
 ⠀⠀ ⠀⠀ ⠀ ⠀⠀ <details> 
 ⠀⠀⠀ ⠀ <summary> REMINDER </summary>
 
@@ -123,8 +117,6 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
 
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
-
-⠀ <img src="https://github.com/pilot-z/pilot-z/blob/1cf86bbb6f9841ba99fc3f8465e7ded5b95ee961/Untitled396_20261023161151.png" width="110%">
 
 ⠀ ⠀⠀𐂂 -- ⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="50%">
