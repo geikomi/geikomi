@@ -52,10 +52,7 @@ I’m so glad our friendship is still going strong! It’s been a year(I think e
 
 $${\color{#BA90C6} \  ╔═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╗   \ }$$
 
-
 $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
-
-
 
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%">
 
@@ -78,6 +75,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
  [art gallery](https://ang3lcakeart.straw.page)
 
+$${\color{#BA90C6} \ ╚═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╝   \ }$$
 
 ⠀⠀
 <details> 
