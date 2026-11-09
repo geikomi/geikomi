@@ -1,5 +1,5 @@
 
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=FFF6A9">
+⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=F8B2B2">
 
 
 
@@ -7,7 +7,7 @@
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
 
-____________
+$${\color{#AEE2FF} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 
 ꗞ⠀—  I only stick around with ppl Im close to. shrugs.⠀
