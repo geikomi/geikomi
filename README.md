@@ -10,9 +10,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}
 $${\color{#B5BAFF} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 
-ꗞ⠀—  I only stick around with ppl Im close to. shrugs.⠀
-
-$${\color{#AD88C6} \ I’m \ fine \ with \ C*H, \ INT, \  or \ whisper \ me!}$$ $${\color{#E493B3} \ Feel \ free \ to \}$$ $${\color{#FFC6C6} \ int \ whatever \ I’m \ with \ friends \ or \ not. }$$ $${\color{#FFEBD4} \ I’m \ also \ pretty \ picky \ about \ making \ new \ friends.}$$
+ꗞ⠀— $${\color{#AD88C6} \ I’m \ fine \ with \ C*H, \ INT, \  or \ whisper \ me!}$$ $${\color{#E493B3} \ Feel \ free \ to \}$$ $${\color{#FFC6C6} \ int \ whatever \ I’m \ with \ friends \ or \ not. }$$ $${\color{#FFEBD4} \ I’m \ also \ pretty \ picky \ about \ making \ new \ friends.}$$
 
 — I’m lazy to remake my readme.
  
