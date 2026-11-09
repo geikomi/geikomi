@@ -49,8 +49,6 @@ I’m so glad our friendship is still going strong! It’s been a year(I think e
  ⠀ ⠀ <img src="https://github.com/geikomi/geikomi/blob/4c57d0cdff65b0a3b035aff9cf8f738a0468dc78/IMG_7915.gif" width="110%">
 
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
-
 
 $${\color{#BA90C6} \  ╔.\ ★.\ .══\═════════╗ \ }$$
 
@@ -61,7 +59,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%">
 
-
+┊ ┊ ┊ ┊ ┊ ┊ ┊ ✫ ˚♡ ⋆｡ ❀ ┊ ☪︎⋆ ⊹ ┊ . ˚ ✧
 
  ⠀ ⠀ ⠀ ⠀⠀$${\color{#BA90C6} \  𐂂 \ - \ Greetings,\ }$$
  $${\color{#E8A0BF} \ you \ }$$ can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.<img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%"><img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
