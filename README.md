@@ -9,8 +9,6 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}
 
 ____________
 
-➜ Erik is literally so problematic! They infected people with joker cooties and now everyone has to go to the jokespital!
-
 
 ꗞ⠀—  I only stick around with ppl Im close to. shrugs.⠀
 
