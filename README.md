@@ -31,7 +31,7 @@ $${\color{#B5BAFF} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 <img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/333706f518c514d0c43039772ca28f159c562478/IMG_6616.jpeg" width="30%">
 
 $${\color{#FFC6C6}  : 𐔌 .. ⋮ .ᐟ \ POWER \ OF \ FRIENDSHIP \ ! \ . 𖥻.ᐟ ׁ ׅ𐂯ᩙ }$$
-$${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \ }$$$${\color{ F2A67B} \ K }$$ $${\color{#008000} \ Y}$$$${\color{#F2A67B} \ L \}$$$${\color{#008000}E \ }$$
+$${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \ }$$$${\color{ F2A67B} \ K }$$ $${\color{#008000} \ Y}$$ $${\color{#F2A67B} \ L \}$$ $${\color{#008000}\E \ }$$
 
 LYLE
 
