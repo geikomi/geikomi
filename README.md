@@ -38,7 +38,11 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS}$$ $${\color{60C1E5}S \ T 
 
  $${\color{#A888B5} JIM \ AS\}$$ 
  
- $${\color{#F2A67B} KENNY\}$$$${\color{#A888B5} KIRK\AS\}$$$${\color{#FF5B42} CARTMAN.\! !}$$
+ $${\color{#F2A67B} KENNY\}$$
+ 
+ $${\color{#A888B5} KIRK\AS\}$$ 
+ 
+ $${\color{#FF5B42} CARTMAN.\! !}$$
 
 I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
