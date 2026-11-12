@@ -1,7 +1,7 @@
 $${\color{#60C1E5} \ IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
 
 
-⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=F8B2B2">
+⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=522546">
 
 $${\color{#B5BAFF} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
