@@ -41,30 +41,33 @@ $${\color{#EFB6C8} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%">
 
-
- ⠀ ⠀ ⠀ ⠀𐂂 - $${\color{#60C1E5} \ Greetings,}$$
+⠀ ⠀ ⠀ ⠀𐂂 - $${\color{#60C1E5} \ Greetings,}$$
 $${\color{#64CCDA}\ you \ can \ call \ me Hal \ / Harold \ or \ other \ names.}$$
 $${\color{#60C1E5} like \ Stan \ , \ Rae \ or \ Sol.}$$
 $${\color{#60C1E5}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%"><img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
  
  ⠀ 𐂂⠀- $${\color{#60C1E5} \ other \ names ;}$$ $${\color{#60C1E5}Aster, \ Azrael, \ Kyle , \ Thorne , \ reo ,\  jon , \ or \ Ghoul.}$$
 
-⠀ ⠀ ⠀⠀ $${\color{#FEEAC9}⠀\ adult[18-20]}$$   
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ $${\color{#FEEAC9}⠀\ adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
-⠀⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them.
+⠀⠀ ⠀  ⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them.
      
    ⠀ <img 
        src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> —  Autism  & ADHD .
 
- ⠀ ⠀ ⠀⠀𐂂⠀ —- ⠀Introverted ⠀ ⠀x
- ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/cdddddf6588e16e5213d7e6895a0e6060a6567bf/0F6A6417-5C79-45E8-9027-F728583D7E75.gif" width="9%">ISTP 9w1 !<img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="9%">
+ ⠀ ⠀ 𐂂⠀ —- ⠀Introverted ⠀⠀
+ 
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ x
+ ⠀ 
+ <img src="https://github.com/pilot-z/pilot-z/blob/cdddddf6588e16e5213d7e6895a0e6060a6567bf/0F6A6417-5C79-45E8-9027-F728583D7E75.gif" width="9%">ISTP 9w1 !<img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="9%">
 ⠀
 
  ⠀  ⠀ ⠀ ⠀⠀ ⠀𐂂 -- ⠀Furry, kemonomimi & alterhuman
 
        
-⠀⠀ ⠀ ⠀⠀ $${\color{#60C1E5} \ Ships? \ If \ you're \ only \ here \ to \ int \ or \ C*H \ for \ shipping, \ pls \ do \ IWEC.}$$
+⠀⠀ ⠀ ⠀⠀Ships? If you're only here to 
+int or C*H for shipping, pls d IWEC.
 
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀  self taught artist
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
@@ -72,8 +75,7 @@ $${\color{#60C1E5}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img sr
 
 <img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%"> ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
 ⠀ ⠀  ⠀⠀      ⠀⠀⠀        ⠀  ⠀⠀      ⠀⠀⠀     ⠀⠀⠀  ⠀⠀⠀     ⠀    ⠀⠀⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"> ⠀⠀ ⠀ ⠀⠀ ⠀ 
-
- ⠀ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">⠀⠀
+ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">⠀⠀
 
 $${\color{#BA90C6} \ ╚═══*.··.☽✧ ✦ ✧☾.·.*═══╝   \ }$$
 
