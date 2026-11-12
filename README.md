@@ -1,11 +1,7 @@
 
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=F8B2B2">
+⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀$${\color{#7CD5C7} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
 
-
-
-
-
-$${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
+<img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=F8B2B2">
 
 $${\color{#B5BAFF} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
@@ -52,19 +48,20 @@ I’m so glad our friendship is still going strong! It’s been a year(I think e
 
 $${\color{#BA90C6} \  ╔═══*.··.☽✧ ✦ ✧☾.··.*═══╗   \ }$$
 
-$${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
+$${\color{#FFD166} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 $${\color{#EFB6C8} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%">
 
 
- ⠀ ⠀ ⠀ ⠀⠀ 𐂂 - Greetings,
- you can call me Hal / Harold or other names like Stan , Rae or Sol. I am fine with nicknames and kin names.<img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%"><img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
+ ⠀ ⠀ ⠀ ⠀𐂂 - $${\color{#64CCDA} \ Greetings,}$$
+$${\color{#64CCDA}\ you \ can \ call \ me Hal \ / Harold \ or \ other \ names.}$$
+$${\color{#64CCDA} like \ Stan \ , \ Rae \ or \ Sol.}$$
+$${\color{#64CCDA}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%"><img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
  
- ⠀ 𐂂⠀- other names ; Aster, Azrael, Kyle , Thorne , reo , jon , or Ghoul.
+ ⠀ 𐂂⠀- $${\color{#64CCDA} \ other \ names ;}$$ $${\color{#64CCDA}Aster, \ Azrael, \ Kyle , \ Thorne , \ reo ,\  jon , \ or \ Ghoul.}$$
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀adult[18-20]
-    
+⠀ ⠀ ⠀⠀ ⠀ ⠀$${\color{#FEEAC9}⠀adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns I prefer ; it / its or they / them .
@@ -83,7 +80,7 @@ $${\color{#BA90C6} \ ╚═══*.··.☽✧ ✦ ✧☾.·.*═══╝   \ }
  <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
-  𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
+  𐂯 —  {64CCDA} I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
 I just say,”I am that character name,” bec they are me n I am them.
 Yk how some people believe they had past lives,or that their soul belongs to something else,depending on what they believe,multi-verses,etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror.Mentally,psychologically,etc, that is who I am.<img src="https://github.com/pilot-z/pilot-z/blob/1fb19f8f05bed45bda30342d0c31d5adecf4719f/3AF1CC30-6CB4-4807-9971-D4DEE2D5ABF2.gif" width="10%">
 
