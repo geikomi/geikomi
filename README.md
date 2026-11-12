@@ -161,6 +161,8 @@ fictotypes ;
 
 ★ Angel xmen . Fullfic - kintwins? ask!
 
+★ Craig tucker . HIGH — kintwins? IWEC unless friendsz
+
 ★ Jetfire/Skyfire . ID - kintwins? ask!
 
 
