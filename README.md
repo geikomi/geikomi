@@ -32,15 +32,9 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS}$$ $${\color{60C1E5}S \ T 
 <img src="https://github.com/pilot-z/pilot-z/blob/2713d86e371d2492a9f6cb1b6300a9251c37782e/IMG_5858.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/87acc63145f30075aa46bdee9666df3cb6f5c922/IMG_5857.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/7d29ce4d826f1b2537ca52329fa24cbc1a4adc35/IMG_5855.jpeg" width="30%"> 
 ⠀ ⠀ ⠀
 
- $${\color{#A888B5} JIM \ AS\}$$ 
- 
- $${\color{#F2A67B} KENNY\}$$
- 
- $${\color{#A888B5} KIRK\AS\}$$ 
- 
- $${\color{#FF5B42} CARTMAN.\! !}$$
+ $${\color{#F2A67B} JIM \ AS KENNY \ N \ KIRK \ AS \ CARTMAN.\!!}$$
 
-I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
+
 
  ⠀ ⠀ <img src="https://github.com/geikomi/geikomi/blob/4c57d0cdff65b0a3b035aff9cf8f738a0468dc78/IMG_7915.gif" width="110%">
 
@@ -67,6 +61,12 @@ $${\color{#60C1E5}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img sr
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀$${\color{#60C1E5} \ pronouns \ I \ prefer \ ; \ it \ / \ its \ or \ they \ / \ them \ . \}$$
       ⠀ <img 
        src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> — $${\color{#60C1E5} \ Autism \ & \ ADHD \ . }$$
+⠀𐂂⠀  ⠀Introverted 
+ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
+⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/cdddddf6588e16e5213d7e6895a0e6060a6567bf/0F6A6417-5C79-45E8-9027-F728583D7E75.gif" width="9%">ISTP 9w1 !<img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="9%">
+⠀
+𐂂 -- ⠀Furry, kemonomimi & alterhuman
+       
 ⠀⠀ ⠀ ⠀⠀ $${\color{#60C1E5} \ Ships? \ If \ you're \ only \ here \ to \ int \ or \ C*H \ for \ shipping, \ pls \ do \ IWEC.}$$
 
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀$${\color{#60C1E5} \ self \ taught \ artist.}$$
@@ -76,19 +76,7 @@ $${\color{#60C1E5}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img sr
 <img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%"> ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
 ⠀ ⠀  ⠀⠀      ⠀⠀⠀        ⠀  ⠀⠀      ⠀⠀⠀     ⠀⠀⠀  ⠀⠀⠀     ⠀    ⠀⠀⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"> ⠀⠀ ⠀ ⠀⠀ ⠀ 
 
- ⠀ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">
-
-⠀ ⠀ ⠀ ⠀
-
-
-⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
- ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
-⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/cdddddf6588e16e5213d7e6895a0e6060a6567bf/0F6A6417-5C79-45E8-9027-F728583D7E75.gif" width="9%">ISTP 6w7 !<img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="9%">
-⠀ 
-⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
-
-
-⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
+ ⠀ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">⠀⠀
 
 $${\color{#BA90C6} \ ╚═══*.··.☽✧ ✦ ✧☾.·.*═══╝   \ }$$
 
@@ -542,7 +530,9 @@ I know I shouldn't care at all, but I’ve realized that several people have blo
 <details>
 <summary>★ lovemails </summary>
 
- ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jellybunni), [@kirk](https://github.com/ccoketaro), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@frances](https://github.com/d3thmagnet1c), @[Thomas](https://github.com/Boundedbyalantern) , [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt! I'm lazy to list others
+I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
+
+ ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jellybunni), [@kirk](https://github.com/ccoketaro), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@frances](https://github.com/d3thmagnet1c), @[Thomas](https://github.com/Boundedbyalantern) , [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt!
 
 
 </details>
