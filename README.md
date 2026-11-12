@@ -3,7 +3,7 @@ $${\color{#60C1E5} \ IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/
 
 ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=522546">
 
-$${\color{#B5BAFF} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
+$${\color{#88304E} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 
 ꗞ⠀— $${\color{#AD88C6} \ I’m \ fine \ with \ C*H, \ INT, \  or \ whisper \ me!}$$ $${\color{#E493B3}Feel \ free \ to \}$$ $${\color{#FFC6C6}int \ whatever \ I’m \ with \ friends \ or \ not. }$$ $${\color{#FFEBD4} \ I’m \ also \ pretty \ picky \ when \ it \ comes \ to \ making \ friends.}$$ 
@@ -37,7 +37,7 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS}$$ $${\color{60C1E5}S \ T 
 $${\color{#BA90C6} \  ╔═══*.··.☽✧ ✦ ✧☾.··.*═══╗   \ }$$
 
 $${\color{#FFD166} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
-$${\color{#EFB6C8} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%">
 
