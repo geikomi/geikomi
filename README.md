@@ -531,8 +531,12 @@ I know I shouldn't care at all, but I’ve realized that several people have blo
 
 I’m so glad our friendship is still going strong! It’s been a year(I think erik, office, and me is 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
- ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jellybunni), [@kirk](https://github.com/ccoketaro), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@frances](https://github.com/d3thmagnet1c), @[Thomas](https://github.com/Boundedbyalantern) , [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt!
+ ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jellybunni), [@kirk](https://github.com/ccoketaro), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@frances](https://github.com/d3thmagnet1c) , [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt!
 
+New cool friends ;
+
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
+@[Thomas](https://github.com/Boundedbyalantern)
 
 </details>
 
