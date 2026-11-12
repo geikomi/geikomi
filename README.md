@@ -422,7 +422,7 @@ ____
 ☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam] unless friends.
 
 
-☆ Creek, Jayroy, & Damijon shippers
+☆ Creek, Jayroy, & Damijon shippers[Yall still allow to int]
 
 
 
@@ -536,7 +536,8 @@ I’m so glad our friendship is still going strong! It’s been a year(I think e
 New cool friends ;
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
-@[Thomas](https://github.com/Boundedbyalantern)
+
+[@Thomas](https://github.com/Boundedbyalantern)
 
 </details>
 
