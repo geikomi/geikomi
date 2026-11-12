@@ -58,9 +58,9 @@ $${\color{#60C1E5}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img sr
 ⠀ ⠀ ⠀⠀ $${\color{#FEEAC9}⠀\ adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
-⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀$${\color{#60C1E5} \ pronouns \ I \ prefer \ ; \ it \ / \ its \ or \ they \ / \ them \ . \}$$
+⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them.
       ⠀ <img 
-       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> — $${\color{#60C1E5} \ Autism \ & \ ADHD \ . }$$
+       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> —  Autism  & ADHD .
 ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
 ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/cdddddf6588e16e5213d7e6895a0e6060a6567bf/0F6A6417-5C79-45E8-9027-F728583D7E75.gif" width="9%">ISTP 9w1 !<img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="9%">
