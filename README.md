@@ -1,5 +1,5 @@
 
-⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀$${\color{#7CD5C7} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
+⠀⠀ ⠀⠀$${\color{#7CD5C7} \ IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=F8B2B2">
 
@@ -61,7 +61,7 @@ $${\color{#64CCDA}\I \ am \ fine \ with \ nicknames \ and \ kin-names.}$$<img sr
  
  ⠀ 𐂂⠀- $${\color{#64CCDA} \ other \ names ;}$$ $${\color{#64CCDA}Aster, \ Azrael, \ Kyle , \ Thorne , \ reo ,\  jon , \ or \ Ghoul.}$$
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀$${\color{#FEEAC9}⠀adult[18-20]}$$   
+⠀ ⠀ ⠀⠀ $${\color{#FEEAC9}⠀\ adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns I prefer ; it / its or they / them .
