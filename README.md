@@ -246,7 +246,9 @@ Other alterhumans;
 
 ★ uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 
-★ I’m obsessed with paleontology, space, science, biology, histroy + others!
+★ Alternate Universe! Recommend me any cool AUs! Please and thank you!
+
+★ I like paleontology, greek mythology, space , science, biology, histroy + others!
 
 
 ★ cooking/baking! I also like cooking & baking shows
@@ -272,7 +274,7 @@ Other alterhumans;
 
 ★ flims/series; The flash CW, green arrow CW, Child’s play,ghostbusters , RoboCop, Real steel, Teen wolf, Stranger things, Friday the 13th, Umbrella Academy, good omens, Halloween , Screams, and more.
 
-★ animated; Peanuts , Monster high , Monster house , Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, aqua teen hunger force and more.
+★ animated; Peanuts , Monster high , Monster house , Batman 2004, Green lantern animated, transformers Cyberverse , Earthspark, Beast wars, Transformers prime & animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Gravity falls, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
 ★ all animals & plants! I love watching nature videos & wildlife.
 
@@ -294,7 +296,7 @@ ACTIVE ;
 
 ★ DC
 
-★ South Park(Only comfortable to int with 18+ fans.)
+★ South Park(Only comfortable to int with 18+ fans.), also AUs like Spirit park and Gravity falls.
 
 ★ Villainous
 
