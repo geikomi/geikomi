@@ -45,7 +45,7 @@ $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 you can call me Hal / Harold or other names I like. ; Stanley / Stan , Rae or Sol.
 I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%"><img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
  
- ⠀ 𐂂⠀-  other names ; Aster, Azrael, Kyle , Thorne , reo , jon , or \ Ghoul.}$$
+ ⠀ 𐂂⠀-  other names ; Aster, Azrael, Kyle , Thorne , reo , jon , or Ghoul.
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ $${\color{#60C1E5}⠀\ adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
@@ -64,7 +64,7 @@ I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilo
 
        
 ⠀⠀ ⠀ ⠀⠀Ships? If you're only here to 
-int or C*H for shipping, pls d IWEC.
+int or C*H for shipping, pls do IWEC.
 
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀  self taught artist
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
@@ -82,7 +82,7 @@ $${\color{#BA90C6} \ ╚═══*.··.☽✧ ✦ ✧☾.·.*═══╝   \ }
  <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
-  𐂯 —  {64CCDA} I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
+  𐂯 — I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
 I just say,”I am that character name,” bec they are me n I am them.
 Yk how some people believe they had past lives,or that their soul belongs to something else,depending on what they believe,multi-verses,etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror.Mentally,psychologically,etc, that is who I am.<img src="https://github.com/pilot-z/pilot-z/blob/1fb19f8f05bed45bda30342d0c31d5adecf4719f/3AF1CC30-6CB4-4807-9971-D4DEE2D5ABF2.gif" width="10%">
 
@@ -152,8 +152,7 @@ fictotypes ;
  
 ☆ Kyle broflovski fullfic — kintwins? Unsure
 
-
-★ dr. john watson medium — kintwins? IDC INT
+★ dr. john watson low — kintwins? IDC INT
 
 ☆  Two face . Fullfic/ID - kintwins? DNI
   
@@ -162,6 +161,10 @@ fictotypes ;
 ★ Angel xmen . Fullfic - kintwins? ask!
 
 ★ Craig tucker . HIGH — kintwins? IWEC unless friendsz
+
+☆ sherlock holmes .  fictionhearted — kintwins? DNIUF
+
+★ kenny mccormick .  fictionhearted — kintwins? INT
 
 ★ Jetfire/Skyfire . ID - kintwins? ask!
 
