@@ -120,17 +120,17 @@ fictotypes ;
 
 ☆  Booster gold . HIGH - kintwins? DNI
 
-★ Stan marsh IRL/ID — kintwins? ask
+★ Stan marsh IRL/ID/COPINGLINK — kintwins? ask
 
 ★ Curious Cat ID — kintwins? sure!
 
 ★ Bean HIGH — kintwins? INT
 
-☆ Od-dog fullfic — kintwins? DNI
+☆ Od-dog fullfic /copinglink  — kintwins? DNI
 
 ★ Funky Monkey medium — kintwins? INT
 
-★ Dogday medium — kintwins? INT
+★ Dogday medium/copinglink — kintwins? INT
 
 ★ Catnap HIGH — kintwins? ask
 
@@ -148,11 +148,15 @@ fictotypes ;
   
 ★ Michael de santa . Fullkin/ID — kintwins? ask
   
-☆  Hal Jordan . IRL - kintwins? DNI
+☆  Hal Jordan . IRL/copinglink - kintwins? DNI
  
 ☆ Kyle broflovski fullfic — kintwins? Unsure
 
+★ Looey . copinglink — kintwins? INT
+
 ★ dr. john watson low — kintwins? IDC INT
+
+★ brusha . high — kintwins? INT
 
 ☆  Two face . Fullfic/ID - kintwins? DNI
   
