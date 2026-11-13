@@ -500,7 +500,7 @@ Very fun. My main problems are basic spelling, poor grammar, counting, reading t
 I only allow close friends, like Erik and Frances, to poke fun of my typos. I trust them n I know they don't mean any harm.
 
 
-☆  I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
+☆  I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes. Do what you like, I don't own any of these characters!
 
  
 ꗞ — Im aware that I am a weirdo.
