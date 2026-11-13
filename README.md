@@ -384,6 +384,8 @@ ______________
 
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
+☆ ppl who lied about their ages.
+
 ☆ ship discourse. I'm so tired of ship discourse. Even the conversations between antis and pro/darkshippers are annoying. I've heard the same arguments over 20 times now, and I just don't want to see it anymore. Also, fandom discourse.
 
 
@@ -395,8 +397,7 @@ ______________
 I have also noticed that most call-out culture can't handle serious topics anyway. I stay away from drama as much as possible and rarely get involved. I always prefer to look at both sides of an issue to form my own opinion before making up my mind. That's all.
 
 
-☆ I dislike the terms "yaoi" and "fujoshi." If you want to label yourself that way, go for it! It's your choice, but it’s just not my thing. 
-
+☆ I dislike the terms "yaoi" and "fujoshi." If you want to label yourself that way, go for it! It's your choice, but it’s just not my thing. While I do enjoy exploring queer relationships EVEN in fiction, I just prefer that people not use those labels on me or the media I engage with.
 
 ☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
 
