@@ -50,7 +50,7 @@ I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilo
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ $${\color{#60C1E5}⠀\ adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
-⠀⠀ ⠀  ⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them.
+⠀⠀ ⠀  ⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them. agender/demifluid & transmasc.
      
    ⠀ <img 
        src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> —  Autism  & ADHD .
