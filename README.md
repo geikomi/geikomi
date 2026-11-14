@@ -135,9 +135,9 @@ fictotypes ;
 
 ★ Catnap HIGH — kintwins? ask
 
-★ Rox [ Spooky month ] HIGH — kintwins? INT
+★ Ross [ Spooky month ] HIGH — kintwins? INT
 
-★ Ross [ Spooky month ] medium — kintwins? INT
+★ Roy [ Spooky month ] medium — kintwins? INT
 
 ☆ Pump HIGH [ Spooky-month ] — kintwins? unsure
 
