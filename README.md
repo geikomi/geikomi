@@ -113,7 +113,9 @@ __________
 
 I'm completely aware I don't own the character though!!🫡
 
-__________
+Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, dandy’s world and Anomaly cafe.] , Creepypasta , Supernatural , Eddsworld, and more.
+
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 fictotypes ;
 
@@ -160,6 +162,8 @@ fictotypes ;
 ★ Tolkien Black medium — kintwins? INT
 
 ★ Clyde donovan medium — kintwins? INT
+
+☆ Noli [ Forsaken ] HIGH — kintwins? unsure
 
 ☆  Doom slayer . ID - kintwins? DNI
   
@@ -208,7 +212,8 @@ _________________
 ★ german shepherd 
  
 ★ lion 
-_________
+
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 objects ;
 
@@ -218,7 +223,7 @@ objects ;
 
 ★ nutcracker
 
-_______
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 Other alterhumans;
 
@@ -330,12 +335,17 @@ ACTIVE ;
 
 ★ GTA5[Only story mode. Only comfortable to int with 18+ fans.]
 
-REST ;
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
+
+REST / semi-active ;
 
 ★ Rescue bots/Transformers
 
-
 ★ arcane
+
+★ Dandy’s world 
+
+★ Anomaly cafe
 
 ★ DreamZzz
 
@@ -346,6 +356,8 @@ REST ;
 ★ backwards house
 
 ★ Ninjago
+
+★ Animal hospital 
 
 ★ The tick
 
@@ -376,7 +388,7 @@ REST ;
 
 ★ & much more.
 
-___________________________________
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 ➤ New to;
 
@@ -405,8 +417,7 @@ ___________________________________
 
 ⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
-______________
-
+$${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 
 
@@ -457,6 +468,8 @@ ____
 
 ☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam] unless friends.
 
+
+☆ South park fans. Ya’ll still allow to int.
 
 ☆ Creek, Jayroy, & Damijon shippers[Yall still allow to int]
 
