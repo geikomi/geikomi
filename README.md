@@ -125,15 +125,23 @@ fictotypes ;
 
 ★ Stan marsh IRL/ID/COPINGLINK — kintwins? ask
 
-★ Curious Cat ID — kintwins? sure!
+★ Waxwell [ DW ] HIGH — kintwins? undure
+
+★ Curious Cat [ TBH ] ID — kintwins? sure!
+
+★ Missy Mouse [ TBH ] low — kintwins? INT
+
+★ Foxtrot [ TBH ] low — kintwins? INT
 
 ☆ Bobette [ HIGH ] — kintwins? unsure
 
 ★ Bean [ disenchantment ] HIGH — kintwins? INT
 
-☆ Od-dog fullfic /copinglink  — kintwins? DNI
+☆ Od-dog fullfic /copinglink [ TBH ]  — kintwins? DNI
 
-★ Funky Monkey medium — kintwins? INT
+★ Funky Monkey medium [ TBH ] — kintwins? INT
+
+★ Dean [ SPN ] low — kintwins? DNIUF
 
 ★ Dogday medium/copinglink — kintwins? INT
 
@@ -142,6 +150,8 @@ fictotypes ;
 ★ Happy [ FNAF ] low — kintwins? INT
 
 ★ Fredbear [ FNAF ] low — kintwins? INT
+
+★ Posh pine [ TBH ] low — kintwins? INT
 
 ★ Candy [ FNAF fangame ] high — kintwins? unsure
 
