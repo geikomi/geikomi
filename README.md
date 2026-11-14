@@ -149,6 +149,8 @@ fictotypes ;
 
 ★ soulvester HIGH — kintwins? ask!
 
+★ Streber [ Spooky month ] low — kintwins? INT
+
 ★ Luci [ disenchantment ] medium — kintwins? INT
 
 ☆ eobard thawne ID — kintwins? DNI
@@ -220,6 +222,10 @@ _______
 
 Other alterhumans;
 
+★ Shapeshifter
+
+★ Jack o Lantern
+
 ★ knight 
 
 ★ monitor lizard
@@ -240,8 +246,13 @@ Other alterhumans;
 
 ★ golden retriever
 
+★ Elf
 
 ★ caiman lizards 
+
+★ Serpentine
+
+★ more
 
 
 [ extra ]
