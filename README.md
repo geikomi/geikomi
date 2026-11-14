@@ -9,7 +9,7 @@ $${\color{#88304E} \ alt \ accounts. }$$ [@craig](https://github.com/19O6), [@gr
 
 ꗞ⠀— $${\color{#AD88C6} \ I’m \ fine \ with \ C*H, \ INT, \  or \ whisper \ me!}$$ $${\color{#E493B3}Feel \ free \ to \}$$ $${\color{#FFC6C6}int \ whatever \ I’m \ with \ friends \ or \ not. }$$ $${\color{#FFEBD4} \ I’m \ also \ pretty \ picky \ when \ it \ comes \ to \ making \ friends.}$$ 
 
-— I’m lazy to remake my readme.
+— Old readme & Strawpages. I’m lazy to remake ig.
  
 
 
