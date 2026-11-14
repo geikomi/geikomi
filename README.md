@@ -135,6 +135,20 @@ fictotypes ;
 
 ★ Catnap HIGH — kintwins? ask
 
+★ Rox Spooky month HIGH — kintwins? INT
+
+★ Ross Spooky month medium — kintwins? INT
+
+☆ Pump HIGH — kintwins? unsure
+
+★ Lefty FNAF medium — kintwins? INT
+
+★ funtime freddy HIGH — kintwins? ask!
+
+★ Candy dealer Medium — kintwins? INT
+
+★ soulvester HIGH — kintwins? ask!
+
 ★ Luci medium — kintwins? INT
 
 ☆ eobard thawne ID — kintwins? DNI
