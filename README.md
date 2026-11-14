@@ -125,7 +125,7 @@ fictotypes ;
 
 ★ Curious Cat ID — kintwins? sure!
 
-★ Bean HIGH — kintwins? INT
+★ Bean [ disenchantment ] HIGH — kintwins? INT
 
 ☆ Od-dog fullfic /copinglink  — kintwins? DNI
 
@@ -135,25 +135,25 @@ fictotypes ;
 
 ★ Catnap HIGH — kintwins? ask
 
-★ Rox Spooky month HIGH — kintwins? INT
+★ Rox [ Spooky month ] HIGH — kintwins? INT
 
-★ Ross Spooky month medium — kintwins? INT
+★ Ross [ Spooky month ] medium — kintwins? INT
 
-☆ Pump HIGH — kintwins? unsure
+☆ Pump HIGH [ Spooky-month ] — kintwins? unsure
 
-★ Lefty FNAF medium — kintwins? INT
+★ Lefty [ FNAF ] medium — kintwins? INT
 
 ★ funtime freddy HIGH — kintwins? ask!
 
-★ Candy dealer Medium — kintwins? INT
+★ Candy dealer [ Spooky month ] Medium — kintwins? INT
 
 ★ soulvester HIGH — kintwins? ask!
 
-★ Luci medium — kintwins? INT
+★ Luci [ disenchantment ] medium — kintwins? INT
 
 ☆ eobard thawne ID — kintwins? DNI
 
-★ Dyle ID — kintwins? DNIUF
+★ Dyle [ Dandys world ] ID — kintwins? DNIUF
 
 ★ Tolkien Black medium — kintwins? INT
 
@@ -171,13 +171,13 @@ fictotypes ;
 
 ★ dr. john watson low — kintwins? IDC INT
 
-★ brusha . high — kintwins? INT
+★ Brusha [ Dandys world ] . high — kintwins? INT
 
 ☆  Two face . Fullfic/ID - kintwins? DNI
   
 ★ Music meister . HIGH - kintwins? ask
 
-★ Angel xmen . Fullfic - kintwins? ask!
+★ Angel [ X-men ] . Fullfic - kintwins? ask!
 
 ★ Craig tucker . HIGH — kintwins? IWEC unless friendsz
 
