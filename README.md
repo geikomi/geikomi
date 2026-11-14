@@ -125,6 +125,8 @@ fictotypes ;
 
 ★ Stan marsh IRL/ID/COPINGLINK — kintwins? ask
 
+★ Stan marsh [Spirit Park/SP AU] HIGH — kintwins? int! If they do exist;-;
+
 ★ Waxwell [ DW ] HIGH — kintwins? undure
 
 ★ Curious Cat [ TBH ] ID — kintwins? sure!
