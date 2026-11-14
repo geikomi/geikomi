@@ -199,7 +199,7 @@ fictotypes ;
 
 ☆ Captain [ tankmen ] HIGH — kintwins? unsure 
 
-☆ Edd [ EW ] high — kintwins? unsure 
+☆ Edd [ EW ] medium — kintwins? unsure 
 
 ★ Streber [ Spooky month ] low — kintwins? INT
 
