@@ -113,7 +113,7 @@ __________
 
 I'm completely aware I don't own the character though!!🫡
 
-Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, dandy’s world and Anomaly cafe.] , Creepypasta , Tankmen , Picos school , Supernatural , Eddsworld, and more.
+Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, dandy’s world and Anomaly cafe.] , Creepypasta , Tankmen , Picos school ,Madness combat , Supernatural , Eddsworld, and more.
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
@@ -127,7 +127,7 @@ fictotypes ;
 
 ★ Stan marsh [Spirit Park/SP AU] HIGH — kintwins? int! If they do exist;-;
 
-★ Waxwell [ DW ] HIGH — kintwins? undure
+☆ Waxwell [ DW ] HIGH — kintwins? unsure
 
 ★ Curious Cat [ TBH ] ID — kintwins? sure!
 
@@ -143,7 +143,7 @@ fictotypes ;
 
 ★ Funky Monkey medium [ TBH ] — kintwins? INT
 
-★ Dean [ SPN ] low — kintwins? DNIUF
+☆ Dean [ SPN ] low — kintwins? DNIUF
 
 ★ Dogday medium/copinglink — kintwins? INT
 
@@ -155,7 +155,7 @@ fictotypes ;
 
 ★ Posh pine [ TBH ] low — kintwins? INT
 
-★ Candy [ FNAF fangame ] high — kintwins? unsure
+☆ Candy [ FNAF fangame ] high — kintwins? unsure
 
 ★ Nedd-bear [ FNAF ] low — kintwins? INT
 
@@ -175,7 +175,7 @@ fictotypes ;
 
 ★ Ribecca [ DW ] low — kintwins? INT
 
-★ Sprout [ DW ] high — kintwins? DNIUF
+☆ Sprout [ DW ] high — kintwins? DNIUF
 
 ★ Flyte [ DW ] medium — kintwins? INT
 
@@ -191,17 +191,19 @@ fictotypes ;
 
 ★ funtime freddy HIGH — kintwins? ask!
 
-★ Scott Mccall [ Teen wolf ] HIGH — kintwins? unsure
+☆ Scott Mccall [ Teen wolf ] HIGH — kintwins? unsure
 
 ★ Candy dealer [ Spooky month ] Medium — kintwins? INT
 
 ★ soulvester HIGH — kintwins? ask!
 
-★ Captain [ tankmen ] HIGH — kintwins? unsure 
+☆ Captain [ tankmen ] HIGH — kintwins? unsure 
 
-★ Edd [ EW ] high — kintwins? unsure 
+☆ Edd [ EW ] high — kintwins? unsure 
 
 ★ Streber [ Spooky month ] low — kintwins? INT
+
+☆ Alucard [ Pico’s school ] HIGH — kintwins? unsure
 
 ★ Luci [ disenchantment ] medium — kintwins? INT
 
@@ -209,11 +211,15 @@ fictotypes ;
 
 ★ Dyle [ Dandys world ] ID — kintwins? DNIUF
 
+★ Cyclops [ Pico’s school ] low — kintwins? INT
+
 ☆ Sam [ SPN ] HIGH — kintwins? DNIUF
 
 ★ Tolkien Black medium — kintwins? INT
 
 ★ Clyde donovan medium — kintwins? INT
+
+★ Hanzo [ Picos school ] low — kintwins? INT
 
 ☆ Noli [ Forsaken ] HIGH — kintwins? unsure
 
