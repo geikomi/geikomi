@@ -113,7 +113,7 @@ __________
 
 I'm completely aware I don't own the character though!!🫡
 
-Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, dandy’s world and Anomaly cafe.] , Creepypasta , Supernatural , Eddsworld, and more.
+Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, dandy’s world and Anomaly cafe.] , Creepypasta , Tankmen , Picos school , Supernatural , Eddsworld, and more.
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
@@ -127,6 +127,8 @@ fictotypes ;
 
 ★ Curious Cat ID — kintwins? sure!
 
+☆ Bobette [ HIGH ] — kintwins? unsure
+
 ★ Bean [ disenchantment ] HIGH — kintwins? INT
 
 ☆ Od-dog fullfic /copinglink  — kintwins? DNI
@@ -137,7 +139,37 @@ fictotypes ;
 
 ★ Catnap HIGH — kintwins? ask
 
+★ Happy [ FNAF ] low — kintwins? INT
+
+★ Fredbear [ FNAF ] low — kintwins? INT
+
+★ Candy [ FNAF fangame ] high — kintwins? unsure
+
+★ Nedd-bear [ FNAF ] low — kintwins? INT
+
 ★ Ross [ Spooky month ] HIGH — kintwins? INT
+
+★ Yatta [ DW ] copinglink — kintwins? INT
+
+★ Vee [ DW ] medium — kintwins? asks
+
+★ Rudie [ DW ] Medium — kintwins? INT
+
+★ Dandy [ DW ] low — kintwin? INT
+
+★ Coal [ DW ] low — kintwins? INT
+
+★ Jon kent [ DC ] medium — kintwins? INT
+
+★ Ribecca [ DW ] low — kintwins? INT
+
+★ Sprout [ DW ] high — kintwins? DNIUF
+
+★ Flyte [ DW ] medium — kintwins? INT
+
+★ Astro [ DW ] mediul — kintwins? IWECUF
+
+★ Goob [ DW ] low — kintwins? INT
 
 ★ Roy [ Spooky month ] medium — kintwins? INT
 
@@ -147,9 +179,15 @@ fictotypes ;
 
 ★ funtime freddy HIGH — kintwins? ask!
 
+★ Scott Mccall [ Teen wolf ] HIGH — kintwins? unsure
+
 ★ Candy dealer [ Spooky month ] Medium — kintwins? INT
 
 ★ soulvester HIGH — kintwins? ask!
+
+★ Captain [ tankmen ] HIGH — kintwins? unsure 
+
+★ Edd [ EW ] high — kintwins? unsure 
 
 ★ Streber [ Spooky month ] low — kintwins? INT
 
@@ -158,6 +196,8 @@ fictotypes ;
 ☆ eobard thawne ID — kintwins? DNI
 
 ★ Dyle [ Dandys world ] ID — kintwins? DNIUF
+
+☆ Sam [ SPN ] HIGH — kintwins? DNIUF
 
 ★ Tolkien Black medium — kintwins? INT
 
@@ -466,7 +506,7 @@ Anyway, here’s my list bec I’m insufferable and I really hate fun.
 
 ____
 
-☆ Invincible , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam] unless friends.
+☆ Invincible , Dandy’s world , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam] unless friends.
 
 
 ☆ South park fans. Ya’ll still allow to int.
