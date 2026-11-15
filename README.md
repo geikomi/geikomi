@@ -113,7 +113,7 @@ __________
 
 I'm completely aware I don't own the character though!!🫡
 
-Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, dandy’s world and Anomaly cafe.] , Creepypasta , Tankmen , Picos school ,Madness combat , Supernatural , Eddsworld, and more.
+Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, Dolly's Factory , dandy’s world and Anomaly cafe.] , Creepypasta , Tankmen , Picos school ,Madness combat , Supernatural , Eddsworld, and more.
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
@@ -361,7 +361,7 @@ Other alterhumans;
 
 ★ favorite color ; green, red, yellow, orange, 00b4ac, and purple!
 
-★ flims/series; The flash CW, green arrow CW, Child’s play,ghostbusters , RoboCop, Real steel, Teen wolf, Stranger things, Friday the 13th, Umbrella Academy, good omens, Halloween , Screams, and more.
+★ flims/series; The flash CW, green arrow CW ,  ghostbusters , RoboCop, Real steel, Teen wolf, Stranger things , Umbrella Academy, good omen , and more.
 
 ★ animated; Peanuts , Monster high , Monster house , Batman 2004, Green lantern animated, transformers Cyberverse , Earthspark, Beast wars, Transformers prime & animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Gravity falls, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
@@ -395,7 +395,7 @@ ACTIVE ;
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
-REST / semi-active ;
+REST ; semi-active & inactive. ;
 
 ★ Rescue bots/Transformers
 
@@ -405,6 +405,8 @@ REST / semi-active ;
 
 ★ Anomaly cafe
 
+★ Dolly's Factory
+
 ★ DreamZzz
 
 ★ Minceaft story mode
@@ -412,6 +414,8 @@ REST / semi-active ;
 ★ planet of the apes
 
 ★ backwards house
+
+★ Toon Universe
 
 ★ Ninjago
 
