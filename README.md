@@ -65,7 +65,7 @@ I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilo
 
        
 ⠀⠀ ⠀ ⠀⠀Ships? If you're only here to 
-int or C*H for shipping, pls do IWEC.
+int or C*H for shipping. I don’t mind at all!
 
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀  self taught artist
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
@@ -231,7 +231,6 @@ fictotypes ;
  
 ☆ Kyle broflovski fullfic — kintwins? Unsure
 
-★ Looey . copinglink — kintwins? INT
 
 ★ dr. john watson low — kintwins? IDC INT
 
@@ -252,7 +251,7 @@ fictotypes ;
 ★ Jetfire/Skyfire . ID - kintwins? ask!
 
 
-Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ALTERBEINGS](https://fictotype.straw.page/hi)
+Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ALTERBEINGS](https://hhftyhtr.straw.page/hi)
 _________________
  
  
