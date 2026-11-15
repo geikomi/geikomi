@@ -189,6 +189,8 @@ fictotypes ;
 
 ★ Lefty [ FNAF ] medium — kintwins? INT
 
+★ Looey [ DW ] copinglink — kintwins? sure!
+
 ★ funtime freddy HIGH — kintwins? ask!
 
 ☆ Scott Mccall [ Teen wolf ] HIGH — kintwins? unsure
