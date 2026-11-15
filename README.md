@@ -558,14 +558,15 @@ ____________
   
 ☆ Those who break their own boundaries. "Dni"
 
-☆ visually ignorant ppl who do not know anything about Alterhumans, xenogenders or any but still choose to spread misinformation. I do not care if you dislike or understand the community, but I expect you to respect our space and keep it to yourself. 
+☆ anti-alterhumans that includes anti-fictionkin
 
+☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses;-;
 
-☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses😭 
 
 ☆ Ppl who has same name as my former friends. I feel petty sorry😞
 
 
+☆ visually ignorant ppl who do not know anything about Alterhumans, xenogenders or any but still choose to spread misinformation. I do not care if you dislike or understand the community, but I expect you to respect our space and keep it to yourself. 
 
  
 ☆ Thats all. 
