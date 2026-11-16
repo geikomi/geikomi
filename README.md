@@ -244,6 +244,8 @@ fictotypes ;
 
 ★ Craig tucker . HIGH — kintwins? IWEC unless friendsz
 
+☆ quicksliver . fullfic — kintwins? DNI
+
 ☆ sherlock holmes .  fictionhearted — kintwins? DNIUF
 
 ★ kenny mccormick .  fictionhearted — kintwins? INT
@@ -254,7 +256,26 @@ fictotypes ;
 Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ALTERBEINGS](https://hhftyhtr.straw.page/hi)
 _________________
  
- 
+ comf ;
+
+ ★ jon kent
+
+ ★ barry allen
+
+★ profesor x 
+
+★ maxwell lord
+
+★ damian wayne
+
+★ ghostmaker
+
+★ ras [ ninjago ]
+
+★ lloyd [ ninjago ]
+
+ and more
+ _____________
  
  theriotype ;
  
