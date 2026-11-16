@@ -439,7 +439,7 @@ Other alterhumans;
 
 ★ animated; Peanuts , Monster high , Monster house , Batman 2004, Green lantern animated, transformers Cyberverse , Earthspark, Beast wars, Transformers prime & animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Gravity falls, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, Bee and PuppyCat , any dc & marvel series/movies , aqua teen hunger force and more.
 
-★ games? lego , deltarune , mortal combat , fnaf ,  minecraft , fortnite , red dead redemption 2 , animal james , my singing monsters , god of war , GTA5 , my little pony magic princess , animal corssing , and more.
+★ games? lego , deltarune , south park , mortal combat , fnaf ,  minecraft , fortnite , red dead redemption 2 , animal james , my singing monsters , god of war , GTA5 , my little pony magic princess , animal corssing , and more.
 
 ★ all animals & plants! I love watching nature videos & wildlife.
 
