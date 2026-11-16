@@ -46,7 +46,7 @@ $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 you can call me Hal / Harold or other names I like. ; Stanley / Stan , Rae or Sol.
 I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%"><img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
  
- ⠀ 𐂂⠀-  other names ; Aster, Azrael, Kyle , Thorne , reo , jon , or Ghoul.
+ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%">𐂂⠀-  other names ; Aster, Azrael, Kyle , Thorne , reo , jon , or Ghoul.
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ $${\color{#60C1E5}⠀\ adult[18-20]}$$   
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
@@ -70,8 +70,6 @@ int or C*H for shipping. I don’t mind at all!
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀  self taught artist
 ⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
  [art gallery](https://ang3lcakeart.straw.page)
-
-<img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%"> ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto rico
 ⠀ ⠀ ⠀⠀ ⠀ 
 
 ⠀⠀ ⠀ ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">⠀⠀
