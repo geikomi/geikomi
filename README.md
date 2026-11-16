@@ -558,6 +558,9 @@ ____________
   
 ☆ Those who break their own boundaries. "Dni"
 
+
+☆ This is not targeted at close friends! If you’re friends with anyone who has caused me major problems in the past, I will likely avoid you. It’s nothing personal against you, but I’m just not comfortable befriending people who still hang out with them. Yes? I do not view any of my ex friends as enemies. I will also avoid people who went along with an ex-friend to harass me or my friend group. I just want my and my friends peace to be protected.
+
 ☆ anti-alterhumans that includes anti-fictionkin
 
 ☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses;-;
