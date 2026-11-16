@@ -488,7 +488,7 @@ $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 ☆ ppl who lied about their ages.
 
-☆ fandom & ship discourse. I'm so tired of ship discourse. Even the back and forth conversations between antis and pro/darkshippers are annoying. I’ve heard the exact same takes over 20 times, and I just don’t want to see them anymore. This also includes complaining nonstop about harmless headcanon, aus or ships “making no sense/is cringe” or trying to police what other people enjoy. Who cares? Let other ponies do what they like.
+☆ fandom & ship discourse. I'm so tired of ship discourse. Even the back and forth conversations between antis and pro/darkshippers are annoying. I’ve heard the exact same takes over 20 times, and I just don’t want to see them anymore. This also includes complaining nonstop about harmless headcanon, sona, oc, aus or ships “making no sense/is cringe” or trying to police what other people enjoy. Who cares? Let other ponies do what they like.
 
 
 ☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
