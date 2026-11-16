@@ -54,7 +54,7 @@ I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilo
 ⠀⠀ ⠀  ⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them. agender/demifluid & transmasc.
      
    ⠀ <img 
-       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> —  Autism  & ADHD .
+       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> —  Autism  & ADHD . POC
 
  ⠀ ⠀ 𐂂⠀ —- ⠀Introverted ⠀⠀
  
