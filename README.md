@@ -7,7 +7,7 @@ $${\color{#88304E} \ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 $${\color{#88304E} \ alt \ accounts. }$$ [@craig](https://github.com/19O6), [@green lantern](https://github.com/HaroldJordan), [@soulvester](https://github.com/pilot-z)
 
-ꗞ⠀— $${\color{#AD88C6} \ Everypony \ are \ allow \ to \ C*H, \ INT, \  or \ whisper \ me!}$$ $${\color{#E493B3}Feel \ free \ to \}$$ $${\color{#FFC6C6}int \ or \ C \ * \ H \ \ whatever \ I’m \ with \ friends \ or \ not. }$$ $${\color{#FFEBD4} \ I’m \ also \ pretty \ picky \ when \ it \ comes \ to \ making \ friends.}$$ 
+ꗞ⠀— $${\color{#AD88C6} \ Everypony \ are \ allow \ to \ C*H, \ INT, \  or \ whisper \ me! \ dont \ be \ weird \ ok? }$$ $${\color{#E493B3}Feel \ free \ to \}$$ $${\color{#FFC6C6}int \ or \ C \ * \ H \ \ whatever \ I’m \ with \ friends \ or \ not. }$$ $${\color{#FFEBD4} \ I’m \ also \ pretty \ picky \ when \ it \ comes \ to \ making \ friends.}$$ 
 
 — Old readme & Strawpages. I’m lazy to remake ig. 
  
