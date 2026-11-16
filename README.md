@@ -171,8 +171,6 @@ fictotypes ;
 
 ★ Coal [ DW ] low — kintwins? INT
 
-★ Jon kent [ DC ] medium — kintwins? INT
-
 ★ Ribecca [ DW ] low — kintwins? INT
 
 ☆ Sprout [ DW ] high — kintwins? DNIUF
