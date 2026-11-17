@@ -602,7 +602,7 @@ Not target to friends and mutuals!
 
 ____
 
-☆ Invincible , Dandy’s world , Hetalia , Eddsworld , FNAF[Mostly Afton family] , Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
+☆ Famdom ; Invincible , Dandy’s world , Hetalia , Eddsworld , FNAF[Mostly Afton family] , Facty and fact attack adventures , Rick & mory, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
 
 
 ☆ South park fans IWC
@@ -613,9 +613,6 @@ ____
 
 
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends/moots. 
-
-☆ yumeshippers IWEC unless friends/moots
-
 
 
 </details>
