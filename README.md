@@ -605,13 +605,10 @@ ____
 ☆ Invincible , Dandy’s world , Hetalia , Eddsworld , FNAF[Mostly Afton family] , Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
 
 
-☆ South park fans. Ya’ll still allow to int. 
-
-☆ Hell park. That AU still uncomfortable 
+☆ South park fans IWC
 
 
-
-☆ Style , Kyman , Creek, Dickbabs , Jayroy, & Damijon shippers[Yall still allow to int]
+☆ Style , Kyman , Creek, Dickbabs , Jayroy, & Damijon shippers[ Yall still allow to int]
 
 
 
