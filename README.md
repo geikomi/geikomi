@@ -605,7 +605,11 @@ ____
 ☆ Invincible , Dandy’s world , Hetalia , Eddsworld , FNAF[Mostly Afton family] , Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
 
 
-☆ South park fans. Ya’ll still allow to int.
+☆ South park fans. Ya’ll still allow to int. 
+
+☆ Hell park. That AU still uncomfortable 
+
+
 
 ☆ Style , Kyman , Creek, Dickbabs , Jayroy, & Damijon shippers[Yall still allow to int]
 
@@ -640,9 +644,6 @@ ____________
 
 
 ☆ Ppl who has same name as my former friends. I feel petty sorry😞
-
-
-☆ visually ignorant ppl who do not know anything about Alterhumans, xenogenders or any but still choose to spread misinformation. I do not care if you dislike or understand the community, but I expect you to respect our space and keep it to yourself. 
 
  
 ☆ Thats all. 
