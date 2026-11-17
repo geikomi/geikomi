@@ -598,11 +598,11 @@ My boundaries may seem ridiculous to some, but they mostly come from bad past ex
 Again, this is my own issue, and I have no intention of stopping my friends from enjoying what they like.
 
 
-Anyway, here’s my list bec I’m insufferable and I really hate fun.
+Not target to friends and mutuals!
 
 ____
 
-☆ Invincible , Dandy’s world , Hetalia , Eddsworld ,  Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam] unless friends.
+☆ Invincible , Dandy’s world , Hetalia , Eddsworld , FNAF[Mostly Afton family] , Facty and fact attack adventures , Rick & morty, Craig fans, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
 
 
 ☆ South park fans. Ya’ll still allow to int.
@@ -611,9 +611,9 @@ ____
 
 
 
-☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
+☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends/moots. 
 
-☆ yumeshippers IWEC unless friends
+☆ yumeshippers IWEC unless friends/moots
 
 
 
