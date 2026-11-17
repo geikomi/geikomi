@@ -505,7 +505,7 @@ REST ; semi-active & inactive. ;
 
 ★ Star Trek
 
-★ FNAF + fangames
+★ FNAF + others [ POPGOES , The Joy of Creation , Five Nights at Frickbear, Five nights at chuck e chewse, One Night at Flumpty , Five nights at candy and more. ]
 
 ★ Kipo and the age of wonderbeasts
 
