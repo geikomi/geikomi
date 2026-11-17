@@ -607,7 +607,7 @@ ____
 
 ☆ South park fans. Ya’ll still allow to int.
 
-☆ Creek, Jayroy, & Damijon shippers[Yall still allow to int]
+☆ Style , Kyman , Creek, Dickbabs , Jayroy, & Damijon shippers[Yall still allow to int]
 
 
 
