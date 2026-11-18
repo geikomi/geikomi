@@ -54,7 +54,7 @@ I am fine with nicknames and kin-names.<img src="https://github.com/pilot-z/pilo
 ⠀⠀ ⠀  ⠀𐂂⠀ -- pronouns I  prefer ; it /  its or they them. agender/demifluid & transmasc.
      
    ⠀ <img 
-       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> —  Autism  & ADHD . POC
+       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> — Diagnosed with ADHD & Autism lvl 2. POC
 
  ⠀ ⠀ 𐂂⠀ —- ⠀Introverted ⠀⠀
  
@@ -72,7 +72,7 @@ int or C*H for shipping. I don’t mind at all!
  [art gallery](https://ang3lcakeart.straw.page)
 ⠀ ⠀ ⠀⠀ ⠀ 
 
-⠀⠀ ⠀ ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">⠀⠀
+⠀⠀ ⠀ ꗞ⠀—  ⠀my malewife, barry! ok?<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">⠀⠀
 
 $${\color{#BA90C6} \ ╚═══*.··.☽✧ ✦ ✧☾.·.*═══╝   \ }$$
 
@@ -602,7 +602,7 @@ Not target to friends and mutuals!
 
 ____
 
-☆ Famdom ; Invincible , Dandy’s world , Hetalia , Eddsworld , FNAF[Mostly Afton family] , Facty and fact attack adventures , Rick & mory, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
+☆ Famdom ; Invincible , Dandy’s world , Hetalia , Eddsworld Rick & mory, DC fans[Mostly Jason Todd/Batfam. yall stll allow to int!
 
 
 ☆ South park fans IWC
@@ -610,9 +610,6 @@ ____
 
 ☆ Style , Kyman , Creek, Dickbabs , Jayroy, & Damijon shippers[ Yall still allow to int]
 
-
-
-☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends/moots. 
 
 
 </details>
@@ -630,7 +627,7 @@ ____________
 ☆ Those who break their own boundaries. "Dni"
 
 
-☆ This is not targeted at close friends! If you’re friends with anyone who has caused me major problems in the past, I will likely avoid you. It’s nothing personal against you, but I’m just not comfortable befriending people who still hang out with them. Yes? I do not view any of my ex friends as enemies. I will also avoid people who went along with an ex-friend to harass me or my friend group. I just want my and my friends peace to be protected.
+☆ This is not targeted at close friends! If you’re friends with anyone who has caused me major problems in the past, I will likely avoid you. It’s nothing personal against you, but I’m just not comfortable befriending people who still hang out with them. Yes? I do not view any of my ex friends as enemies.
 
 ☆ anti-alterhumans that includes anti-fictionkin
 
@@ -668,6 +665,10 @@ Most of terms are in main pronouncc I’m only comfortable to share with people 
 
 
 ☆ If I am being too much or overshare and if you don’t like that let me know! I also change my intro most of time bec im bored or maybe I said too much.😭
+
+
+★  If my typing or vibe makes you think I’m younger. I’m disabled, which makes grammar, social cues, and others hard for me. Please do not baby me. Just treat me like an adult and be patient if I misunderstand something.
+
 
 
 ★ I sometimes make unfunny childish jokes with my close friends. Like, idk.
