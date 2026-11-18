@@ -113,6 +113,8 @@ I'm completely aware I don't own the character though!!🫡
 
 Be warned; I’m not into some fandoms like Forsaken, any Roblox games[ Except animal hospital, Dolly's Factory , dandy’s world and Anomaly cafe.] , Creepypasta , Tankmen , Picos school ,Madness combat , Supernatural , Eddsworld, and more.
 
+I'm going to replace the list on my StrawPage/Pronouncc, but I'm lazy.
+
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
 fictotypes ;
@@ -127,7 +129,7 @@ fictotypes ;
 
 ☆ Waxwell [ DW ] HIGH — kintwins? unsure
 
-★ Don Hall / Dove [ DC ] low — kintwins? INT!
+★ Don Hall / Dove [ DC ] medium — kintwins? INT!
 
 ★ Sabertooth [ MARVEL ] HIGH — kintwins? DNIUF
 
