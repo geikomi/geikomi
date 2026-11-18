@@ -1,4 +1,5 @@
-<img width="194" height="260" alt="IMG_8897" src="https://github.com/user-attachments/assets/044633a7-548c-455e-a7ff-2ca2e2c3004a" />
+<img width="1240" height="1754" alt="Untitled427_20261118163428" src="https://github.com/user-attachments/assets/eec1c50b-b22e-49d0-a4cf-3c7b03572635" />
+
 
 
 $${\color{#60C1E5} \ IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
