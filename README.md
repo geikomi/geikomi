@@ -121,11 +121,15 @@ fictotypes ;
 
 ☆  Booster gold . HIGH - kintwins? DNI
 
-★ Stan marsh IRL/ID/COPINGLINK — kintwins? ask
+★ Stan marsh IRL/ID/COPINGLINK — kintwins? Sure!
 
 ★ Stan marsh [Spirit Park/SP AU] HIGH — kintwins? int! If they do exist;-;
 
 ☆ Waxwell [ DW ] HIGH — kintwins? unsure
+
+★ Don Hall / Dove [ DC ] low — kintwins? INT!
+
+★ Sabertooth [ MARVEL ] HIGH — kintwins? DNIUF
 
 ★ Curious Cat [ TBH ] ID — kintwins? sure!
 
@@ -162,6 +166,10 @@ fictotypes ;
 ★ Yatta [ DW ] copinglink — kintwins? INT
 
 ★ Vee [ DW ] medium — kintwins? asks
+
+★ leslie [ south park ] low — kintwins? INT
+
+★ jimmy [ south park ] medium — kintwins? INT
 
 ★ Rudie [ DW ] Medium — kintwins? INT
 
@@ -227,7 +235,7 @@ fictotypes ;
   
 ☆  Hal Jordan . IRL/copinglink - kintwins? DNI
  
-☆ Kyle broflovski fullfic — kintwins? Unsure
+☆ Kyle broflovski fullfic — kintwins? INT!
 
 
 ★ dr. john watson low — kintwins? IDC INT
@@ -319,6 +327,16 @@ _______
 ★ Franklin [ peanuts ]
 
 ★ Wendy [ South park ]
+
+★ Groery [ South park ]
+
+★ Charlotte [ south park ]
+
+★ Christophe / Mole [ South park ]
+
+★ leslie [ south park ]
+
+★ gregory [ south park ]
 
 ★ Dogpooh [ South park ]
 
@@ -435,7 +453,7 @@ Other alterhumans;
 
 ★ flims/series; The flash CW, green arrow CW ,  ghostbusters , RoboCop, Real steel, Teen wolf, Stranger things , Umbrella Academy, good omen , and more.
 
-★ animated; Peanuts , Monster high , Monster house , Batman 2004, Green lantern animated, transformers Cyberverse , Earthspark, Beast wars, Transformers prime & animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Gravity falls, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, Bee and PuppyCat , any dc & marvel series/movies , aqua teen hunger force and more.
+★ animated; Peanuts , Monster high , Monster house , Nightmare before Christmas, Batman 2004, Green lantern animated, transformers Cyberverse , Earthspark, Beast wars, Transformers prime & animated, inside out, villainous, Disenchantment, South park , My Adventures with Superman, bob’s burgers, Gravity falls, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, creature commandos, kipo and the age of wonderbeast, Bee and PuppyCat , any dc & marvel series/movies , aqua teen hunger force and more.
 
 ★ games? lego , deltarune , south park , mortal combat , fnaf ,  minecraft , fortnite , red dead redemption 2 , animal james , my singing monsters , god of war , GTA5 , my little pony magic princess , animal corssing , and more.
 
