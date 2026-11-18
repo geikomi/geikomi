@@ -1,3 +1,4 @@
+<img width="194" height="260" alt="IMG_8897" src="https://github.com/user-attachments/assets/044633a7-548c-455e-a7ff-2ca2e2c3004a" />
 $${\color{#60C1E5} \ IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ꛅꛎꚳ \ JꗞЯDΛП/j}$$
 
 
