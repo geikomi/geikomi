@@ -125,6 +125,12 @@ fictotypes ;
 
 ★ Stan marsh IRL/ID/COPINGLINK — kintwins? Sure!
 
+★ silver surfer [ Marvel ] HIGH - kintwins? INT.
+
+★ Skywarp [Transformers] HIGH - kintwins? Ask
+
+★ Bulleye [ Marvel ] HIGH - kintwins? ask unless friends
+
 ★ Stan marsh [Spirit Park/SP AU] HIGH — kintwins? int! If they do exist;-;
 
 ☆ Waxwell [ DW ] HIGH — kintwins? unsure
@@ -244,7 +250,13 @@ fictotypes ;
 
 ★ Brusha [ Dandys world ] . high — kintwins? INT
 
+★ Scott malkinson [ SP ] medium — kintwins? INT
+
 ☆  Two face . Fullfic/ID - kintwins? DNI
+
+★ Dr. Doom [ Marvel ] HIGH - kintwins? Ask unless we friends
+
+★ Johnny Storm [ Marvel ] HIGH - kintwins? sure!
   
 ★ Music meister . HIGH - kintwins? ask
 
@@ -261,7 +273,7 @@ fictotypes ;
 ★ Jetfire/Skyfire . ID - kintwins? ask!
 
 
-Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ALTERBEINGS](https://hhftyhtr.straw.page/hi)
+Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ALTERBEINGS](https://pronouns.cc/@.stan)
 _________________
  
  comf / fav ;
