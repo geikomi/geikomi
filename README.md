@@ -551,7 +551,7 @@ $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 <summary>DISLIKES !</summary>
 
 
-⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because im tired by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
@@ -594,7 +594,7 @@ I have also noticed that most call-out culture can't handle serious topics anywa
  <details>
 <summary>THIN ICES. NOT A DNI[I'm not really a fan of making lists, so here we go.) !</summary>
 
-My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of parts are getting overwhelmed by repeated situations. Please respect them. I do not expect anyone to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike!
+ My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because im tired by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 Again, this is my own issue, and I have no intention of stopping my friends from enjoying what they like.
 
 
@@ -622,7 +622,7 @@ ____
 
 
 
-⠀ ⠀ ⠀ ꗞ — My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of mparts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because im tired by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 ____________
 
@@ -653,7 +653,7 @@ I rarely block doubles
 <summary> ABOUT ME & BEFORE YOU INTERACT !</summary>
 
 
-⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ —   My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because im tired by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 
 ________________
