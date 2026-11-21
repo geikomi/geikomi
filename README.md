@@ -390,7 +390,7 @@ Most of terms are in main pronouncc I’m only comfortable to share with people 
 
 ★ I don’t act like my chronological age due to trauma and disability.
 
-★  If my typing or vibe makes you think I’m younger. I’m disabled, which makes grammar, social cues, and others hard for me. Please do not baby me. Just treat me like an adult and be patient if I misunderstand something.
+★  If my typing or vibe makes you think I’m younger. I'm not. I’m just terrible with grammar, social cues, and some things are hard for me. Please do not baby me. Just treat me like an adult and be patient if I misunderstand something.
 
 
 
