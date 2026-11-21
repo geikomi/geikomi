@@ -388,6 +388,8 @@ Most of terms are in main pronouncc I’m only comfortable to share with people 
 ☆ If I am being too much or overshare and if you don’t like that let me know! I also change my intro most of time bec im bored or maybe I said too much.😭
 
 
+★ I don’t act like my chronological age due to trauma and disability.
+
 ★  If my typing or vibe makes you think I’m younger. I’m disabled, which makes grammar, social cues, and others hard for me. Please do not baby me. Just treat me like an adult and be patient if I misunderstand something.
 
 
