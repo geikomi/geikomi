@@ -447,7 +447,7 @@ New cool friends ;
 
 $${\color{#B5BAFF} \ ┄  ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ ┄ \  }$$
 
-[@Thomas](https://github.com/Boundedbyalantern)
+
 
 </details>
 
